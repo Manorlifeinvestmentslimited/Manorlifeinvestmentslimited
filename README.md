@@ -16,7 +16,7 @@
 - Удобный выбор типов счётов
 
 Отзывы можно найти на популярных платформах:  
-**Blogspot, Medium, LinkedIn, Reddit**
+**[Blogspot](https://manorlifeinvestmentslimited.blogspot.com/2025/04/manor-life-investments-limited.html), [Medium](https://medium.com/@Manorlifeinvestmentslimited/manor-life-investments-limited-%D0%BE%D1%82%D0%B7%D1%8B%D0%B2%D1%8B-%D0%BD%D0%B0%D1%81%D0%BA%D0%BE%D0%BB%D1%8C%D0%BA%D0%BE-%D1%8D%D1%84%D1%84%D0%B5%D0%BA%D1%82%D0%B8%D0%B2%D0%BD%D1%8B-%D1%81%D0%B8%D0%B3%D0%BD%D0%B0%D0%BB%D1%8B-69b92f17e615), [HackMD](https://hackmd.io/@Manorlifeinvestmentslimited/Hyt8jYLA1g), [Dzen](https://dzen.ru/a/Z_kO5fj_J1W8USJD), [VC.RU](https://vc.ru/u/4799100-olga-pahomova/1920675-investicii-s-chego-nachat-put-k-finansovoi-svobode)**
 
 ### Часто отмечают:
 
